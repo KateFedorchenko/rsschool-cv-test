@@ -65,5 +65,5 @@ I am highly self-motivated and good at working and communicating within a team. 
 I am deeply interested in IT technologies and constantly eager to develop herself. I am energetic and well disciplined. I enjoy learning new things and can assimilate new ideas quickly. I am client-oriented and able to uphold high standards of customer service. My hobbies are reading, travelling and doing sports.
 
 ## **Contact** 
-### +79530921550
+### +7(953)092-15-50
 Email: frau.fedorchenko2014@yandex.ru
