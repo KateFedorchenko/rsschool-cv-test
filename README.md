@@ -1,1 +1,1 @@
-# rsschool-cv-test
+https://KateFedorchenko.github.io/rsschool-cv/cv
